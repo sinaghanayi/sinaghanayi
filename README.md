@@ -1,4 +1,4 @@
-# Sina Ghanayi
+# Sina Ghanaei
 
 ### Aspiring Aerospace Engineer | Aerodynamics, Flight Physics & Scientific Computing
 
